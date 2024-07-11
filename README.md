@@ -1,1 +1,1 @@
-# rx22045.github.io
+# rx22045.io
